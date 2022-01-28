@@ -1,2 +1,2 @@
-# K-v-rc-k-palmiye-a-ac-
+# Kıvırcık palmiye ağacı
 Bir gün ulasacağımız kulelere doğru
